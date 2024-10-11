@@ -6,7 +6,7 @@
    
    <br />
    
-  **Team Leader EMail-ID:**[chinmayaj.ai22@rvce.edu.in](www.chinmayaj.ai22@rvce.edu.in)<br />
+
   **Medium link:** [ Personality Traits for efficient teaching](https://medium.com/@imtanusri/personality-traits-that-help-students-and-teachers-for-better-learning-and-teaching-ca80afbaa09c)
    
    
